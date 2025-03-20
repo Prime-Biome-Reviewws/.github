@@ -30,7 +30,7 @@ Prime Biome also contains ingredients that promote collagen production and skin 
 - Aids in natural detoxification  
 - Strengthens the immune system  
 
-👉 **Ready to improve your gut and skin health naturally? [Click here to order Prime Biome now!](#)**  
+👉 **Ready to improve your gut and skin health naturally? [Click here to order Prime Biome now!]([#](https://prrimebiomee.com/))**  
 
 ## Prime Biome Ingredients and What They Do  
 
