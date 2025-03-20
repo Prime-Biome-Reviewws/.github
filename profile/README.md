@@ -97,7 +97,7 @@ You can only buy Prime Biome from the **official website** to make sure you’re
 
 > The more you buy, the bigger the savings — and free shipping makes the deal even better.  
 
-🔒 **Backed by a 60-day money-back guarantee — there’s nothing to lose. [Get Prime Biome here!](#)**  
+🔒 **Backed by a 60-day money-back guarantee — there’s nothing to lose. [Get Prime Biome here!](https://prrimebiomee.com/#)**  
 
 ## Is Prime Biome a Scam or Legit?  
 **Prime Biome is not a scam.** It’s backed by science, and many customers report positive changes in digestion and skin health within a few weeks. While everyone’s body is different, most users see visible improvements between 3 to 4 weeks.  
